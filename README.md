@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on  Software DEvelopment Projects
 - 📫 How to reach me tripathishiva0123@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I am a  multilingual programmer
+- ⚡ Fun fact: I  only watched one harry potter movie
+- 
 
 <!---
 tripathishiva0123/tripathishiva0123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
