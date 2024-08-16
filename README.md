@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on  Software DEvelopment Projects
 - 📫 How to reach me tripathishiva0123@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I  only watched one harry potter movie
+- ⚡ Fun fact: I have  only watched one harry potter movie
 - 
 
 <!---
